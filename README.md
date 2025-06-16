@@ -1,1 +1,1 @@
-# Pratica_Estat-stica__2
+# Pratica Estatistica
